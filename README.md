@@ -1,5 +1,7 @@
-Hi :3
+## Hi :3
 
-[my Discord](https://discordapp.com/users/889449306891878431)
+### check my cool site http://nya.mypzik3d.xyz :3
+### I making what nobody use
 
-Yes...
+
+
